@@ -7,4 +7,6 @@ Made from scanned card straws, assembled together digitally and formatted into a
 
 Please feel free to check out Sunday Lunch's other typefaces here: https://www.sundaylunch.biz
 
+If you'd like a *slighty* higher quality version of the typeface contact me through: info@sundaylunch.biz – the file is too large to upload here. 
+
 ![Scan 1a](https://github.com/sunday-lunch/STRAWS/assets/173478542/f80ad49d-9464-414e-9e5f-bf04d3b1e1f8)
